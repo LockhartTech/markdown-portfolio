@@ -1,0 +1,1 @@
+![Caribbean Map](https://www.researchgate.net/profile/Rahanna-Juman/publication/242264928/figure/fig1/AS:298482977001475@1448175295396/Map-of-the-Caribbean-Islands-The-natural-resource-base-of-the-Caribbean-islands-is.png)
